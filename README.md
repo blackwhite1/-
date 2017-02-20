@@ -1,2 +1,0 @@
-# -
-no game no life
